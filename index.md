@@ -11,3 +11,8 @@ Da er selbst aufgrund seiner Unfruchtbarkeit keine ANchkommen zeugen kann, ist s
 * Schnelligkeit
 * Intelligez
 * Gewandheit
+
+## Zitat
+
+> Manche sagen, das silberne Schwert ist für Monster und das stählerne für Menschen, 
+> ich sage, beide sind für Monster
