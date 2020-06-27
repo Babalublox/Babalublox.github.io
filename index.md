@@ -16,3 +16,5 @@ Da er selbst aufgrund seiner Unfruchtbarkeit keine ANchkommen zeugen kann, ist s
 
 > Manche sagen, das silberne Schwert ist für Monster und das stählerne für Menschen, 
 > ich sage, beide sind für Monster
+
+<img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fvignette.wikia.nocookie.net%2Fhexer%2Fimages%2F5%2F51%2FGeralt_von_Riva_The_Witcher_1.png%2Frevision%2Flatest%3Fcb%3D20180113002245&f=1&nofb=1"/>
